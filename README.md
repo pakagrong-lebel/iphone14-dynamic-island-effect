@@ -1,0 +1,1 @@
+# iphone14-dynamic-island-effect
